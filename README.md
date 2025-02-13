@@ -10,9 +10,9 @@
 <img align="right" alt="Pepe" width="300" src="https://media.tenor.com/wU7pPDFZJVYAAAAi/pepe-pepe-punch.gif">
 
 
-- 📫 How to reach me **naifmuazzam9@gmail.com**
+- 📫 How to reach me **soon**
 
-- ⚡ Fun fact **I am Good Guy**
+- ⚡ Nothing here :)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
